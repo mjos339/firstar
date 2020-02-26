@@ -1,3 +1,3 @@
 # firstar
 chillininclass
-https://mjos339.github.io/firstar/
+https://mjos339.github.io/firstar/nikkitree
